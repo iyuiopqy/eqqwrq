@@ -1,20 +1,20 @@
-# 🐾[批改作业39/小时 ，寒假工，临时工，点击后复制到浏览器打开即可开始工作  ](https://vip.bufanren.com/c/6p62jb86)
-# 🐾[点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
+# 🐾[批改作业39/小时 ，寒假工，临时工，点击后复制到浏览器打开即可开始工作  ](https://cdd1.netlify.app?p=6nd00826&_wv=1025&_wwv=90925&_nav_statusclr=&_wvNb=iiii2391&_wb=1&_wbw=0&_wbn=0)
+# 🐾[点击后复制到浏览器打开即可开始工作](https://7fa.netlify.app?p=6nd00826&_wv=1025&_wwv=90513&_nav_statusclr=&_wvNb=tttt0985&_wb=1&_wbw=0&_wbn=0)
 -
-# 🐾[小说抄写-批改作业-全程免费-39/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
-# 🐾[小说抄写-批改作业-全程免费-30/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
+# 🐾[小说抄写-批改作业-全程免费-39/小时-点击后复制到浏览器打开即可开始工作](https://cdd1.netlify.app?p=6nd00826&_wv=1025&_wwv=90925&_nav_statusclr=&_wvNb=iiii2391&_wb=1&_wbw=0&_wbn=0)
+# 🐾[小说抄写-批改作业-全程免费-30/小时-点击后复制到浏览器打开即可开始工作]([https://7fa.netlify.app?p=6nd00826&_wv=1025&_wwv=90513&_nav_statusclr=&_wvNb=tttt0985&_wb=1&_wbw=0&_wbn=0)
 -
-# 🐾[小说抄写-35/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
-# 🐾[小说抄写-35/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
+# 🐾[小说抄写-35/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
+# 🐾[小说抄写-35/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
 -
-# 🐾[批改作业-32/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
-# 🐾[批改作业-32/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
+# 🐾[批改作业-32/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
+# 🐾[批改作业-32/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
 -
-# 🐾[快手抖音点赞-3/个-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
-# 🐾[快手抖音点赞-3/个-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
+# 🐾[快手抖音点赞-3/个-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
+# 🐾[快手抖音点赞-3/个-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
 -
-# 🐾[文字录入-30/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
-# 🐾[文字录入-20/小时-点击后复制到浏览器打开即可开始工作](https://vip.bufanren.com/c/6p62jb86)
+# 🐾[文字录入-30/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
+# 🐾[文字录入-20/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
 -
 -
 -
