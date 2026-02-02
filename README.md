@@ -1,8 +1,8 @@
-# 🐾[批改作业39/小时 ，寒假工，临时工，点击后复制到浏览器打开即可开始工作  ](https://cdd1.netlify.app?p=6nd00826&_wv=1025&_wwv=90925&_nav_statusclr=&_wvNb=iiii2391&_wb=1&_wbw=0&_wbn=0)
-# 🐾[点击后复制到浏览器打开即可开始工作](https://7fa.netlify.app?p=6nd00826&_wv=1025&_wwv=90513&_nav_statusclr=&_wvNb=tttt0985&_wb=1&_wbw=0&_wbn=0)
+# 🐾[批改作业39/小时 ，寒假工，临时工，点击后复制到浏览器打开即可开始工作  ](https://qwdq.netlify.app/)
+# 🐾[点击后复制到浏览器打开即可开始工作](https://qwdq.netlify.app/)
 -
-# 🐾[小说抄写-批改作业-全程免费-39/小时-点击后复制到浏览器打开即可开始工作](https://cdd1.netlify.app?p=6nd00826&_wv=1025&_wwv=90925&_nav_statusclr=&_wvNb=iiii2391&_wb=1&_wbw=0&_wbn=0)
-# 🐾[小说抄写-批改作业-全程免费-30/小时-点击后复制到浏览器打开即可开始工作](https://7fa.netlify.app?p=6nd00826&_wv=1025&_wwv=90513&_nav_statusclr=&_wvNb=tttt0985&_wb=1&_wbw=0&_wbn=0)
+# 🐾[小说抄写-批改作业-全程免费-39/小时-点击后复制到浏览器打开即可开始工作](https://qwdq.netlify.app/)
+# 🐾[小说抄写-批改作业-全程免费-30/小时-点击后复制到浏览器打开即可开始工作](https://qwdq.netlify.app/)
 -
 # 🐾[小说抄写-35/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
 # 🐾[小说抄写-35/小时-点击后复制到浏览器打开即可开始工作](https://dccbd.netlify.app/)
